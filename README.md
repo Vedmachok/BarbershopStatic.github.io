@@ -1,0 +1,1 @@
+# BarbershopStatic.github.io
